@@ -1,0 +1,7 @@
+- 👋 Hi, I’m demostenee.
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning nothing 
+- 💞️ I’m looking to collaborate on Discord or Pornhub
+- 📫 How to reach me nothing
+- 😄 Pronouns: Maddie
+- ⚡ Fun fact: nothing
